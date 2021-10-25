@@ -2,5 +2,6 @@
 - 👀 I’m interested in Indie game development
 - 🌱 I’m currently learning how to code C# and how to use Unity 2021.
 - 💞️ I’m looking to collaborate on Unity 2021.
-- 📫 How to reach me E-mail me! (nirmitasrivastava6@gmail.com)
+- 📫 How to reach me E-mail me! (nirmitasrivastava6@gmail.com) <- Don't click the link just go on Gmail, Compose new mail, and type in the e-mail address!
 - 👦 I'm only 10 so don't expect me to give advanced/expert info!
+- 🚩 I'm from India!

@@ -5,3 +5,4 @@
 - 📫 How to reach me E-mail me! (nirmitasrivastava6@gmail.com) <- Don't click the link just go on Gmail, Compose new mail, and type in the e-mail address!
 - 👦 I'm only 10 so don't expect me to give advanced/expert info!
 - 🚩 I'm from India!
+- 🎥 Check out my YouTube channel! (https://www.youtube.com/channel/UCesrIxzP66p5QWiIdlu7JJQ)

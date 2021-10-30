@@ -6,4 +6,4 @@
 - 👦 I'm only 10 so don't expect me to give advanced/expert info!
 - 🚩 I'm from India!
 - 🎥 Check out my YouTube channel! (https://www.youtube.com/channel/UCesrIxzP66p5QWiIdlu7JJQ)
-- 💬 (https://discord.gg/aH8qS5uEVU)
+- 💬 Discord server! (https://discord.gg/aH8qS5uEVU)
